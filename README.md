@@ -18,4 +18,4 @@
 
 总的来说，优质的“日本AV免费”资源站不仅仅是资源丰富，更是播放顺畅、安全隐私和用户体验的综合体现。选择这样的站点，能让用户享受到真正高质量、无忧的观影之旅。
 
-<span style="display:none;">[Canonical link]( https://github.com/liqi201215/653140 )</span>
+<span style="display:none;">[Canonical link]( https://github.com/liqi201215/653140 ）</span>
